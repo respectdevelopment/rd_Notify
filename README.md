@@ -1,4 +1,4 @@
-![notify](https://github.com/respectdevelopment/rd_Notify/assets/143709835/b5d7306c-bb83-47d7-9ef2-5d41657659ee)
+![notify (2)](https://github.com/respectdevelopment/rd_Notify/assets/143709835/c3364708-4d51-4a2a-a171-7fddc1eadfad)
 
 ###
 
